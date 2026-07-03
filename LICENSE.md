@@ -1,4 +1,4 @@
-
+Experience math for brainrots like never before with secure Scripts for math for brainrots, the #1 Script. Includes speed and infinite resources for
 
 
 
